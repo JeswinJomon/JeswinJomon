@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JeswinJomon
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning how to jump flash
+- 🌱 I’m currently learning how to jump flash in csgo
 - 💞️ I’m looking to collaborate on ranked matches
 - 📫 How to reach me just text me ill text you back
 
